@@ -1,1 +1,1 @@
-Some new content
+Some new content; what we need now is some direction.
